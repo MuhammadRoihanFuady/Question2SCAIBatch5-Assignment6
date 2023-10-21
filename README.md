@@ -1,1 +1,0 @@
-# Question2SCAIBatch5-Assignment6
